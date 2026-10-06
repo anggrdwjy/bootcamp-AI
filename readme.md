@@ -1,1 +1,1 @@
-## Hola, Firsttime Study AI Engineers
+## Hola, First time Study AI Engineers
